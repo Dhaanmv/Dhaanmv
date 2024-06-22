@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Dhaanmv
+- 👀 I’m interested in programming games and apps
+- 🌱 I’m currently learning igcse olevel in Maldives
+- 📫 How to reach me: Dhaan_mv (discord)
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I am a huge fan of tottenham hotspurs
